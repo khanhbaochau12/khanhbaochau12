@@ -1,5 +1,9 @@
 ### Hi there 👋
-
+ How to reach me: 
+ khanhbaochau12@gmail.com
+ https://www.linkedin.com/in/khnhbaochaungyn12
+ https://www.facebook.com/khanhbaochau.nguyen.9
+ 
 <!--
 **khanhbaochau12/khanhbaochau12** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
