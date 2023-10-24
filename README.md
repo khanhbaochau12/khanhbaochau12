@@ -1,7 +1,10 @@
 ### Hi there 👋
  How to reach me: 
+ 
  khanhbaochau12@gmail.com
+ 
  https://www.linkedin.com/in/khnhbaochaungyn12
+ 
  https://www.facebook.com/khanhbaochau.nguyen.9
  
 <!--
